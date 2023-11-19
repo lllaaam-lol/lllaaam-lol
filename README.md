@@ -1,5 +1,5 @@
  Lama Abdulaziz.
-- 👀 I’m interested in data analysis .
+- 👀  interested in data analysis .
 - 🌱 CS student at King saud university .
 - 💞️ I’m looking to learn and acquire other new and useful skills .
 - 📫 How to reach me : LmLmvel18@gmail.com
